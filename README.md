@@ -1,1 +1,0 @@
-# Strixhack.github.io
